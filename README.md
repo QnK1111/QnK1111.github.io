@@ -1,1 +1,5 @@
-### qnk1111
+### Zainteresowania:
+- programowanie
+- matematyka
+- speedcubing
+- trening siłowy
